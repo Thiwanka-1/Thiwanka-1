@@ -13,9 +13,9 @@
 
 - 💬 Ask me about *Java*
 
-- 📫 How to reach me *asdsachii@gmail.com*
+- 📫 How to reach me *gamithu619@gmail.com*
   
-- ⚡ Fun fact *Call me as Sachii*
+- ⚡ Fun fact *Call me as Thiwanka*
 
 </td>
 <td width="50%" align="center">
